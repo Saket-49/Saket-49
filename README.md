@@ -1,5 +1,5 @@
 # 💫 About Me:
-currently working on system design <br>looking to collaborate in some web based tools<br>aiming to connect with like minded people of my domain<br>currently learning devops
+🫆 currently working on system design <br>🤖 looking to collaborate in some web based tools<br>🫂 aiming to connect with like minded people of my domain<br>🖥️ currently learning devops
 
 
 ## 🌐 Socials:
